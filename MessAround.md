@@ -1,6 +1,6 @@
 # Lettera aperta ai ventenni
 
-Ciao ventenne senza nome e con il potenziale per spaccare il mondo, sono uno che ha finito i suoi 20 anni da un po'. 
+Ciao ventenne senza nome e con il potenziale per spaccare il mondo, sono un millenial che ha finito i suoi 20 anni da un po'. 
 
 Visto che di fatto sto per darti consigli non richiesti (cosa che poco tollero io stesso), forse è il caso di provare a vestire questa lettera in modo diverso dalla solita paternale che ormai ti avrà frantumato i genitali. Facciamo finta che i 20 anni siano un localino indie un po' affollato... e visto che ci sono stato tempo fa a sentire qualche concerto, se ti interessa ti lascio la mia recensione. 
 
@@ -13,7 +13,7 @@ Visto che di fatto sto per darti consigli non richiesti (cosa che poco tollero i
 >
 > Ci sono cazzate che ho fatto che mi sento di raccomandarti caldamente, e altre che avevo paura di fare, ma che forse avrei dovuto fare. Elenco tutto qui di seguito, cercando di non farle sembrare cazzate, così puoi usare questa roba per circuire i boomer di turno. 
 >
->**Fai arte, costruisci cose, programma software, suona, racconta storie, esprimiti**. Fallo anche se non sono cose che ti interessa portare avanti professionalmente. Fallo perché, oltre ad allenare la creatività (utile per risolvere qualsiasi problema avrai nella vita) e sviluppare un senso estetico (senza non farai mai niente di *bello*), ti servirà ad apprendere competenze che mai avresti pensato ti potessero servire, anche in contesti molto pratici. **Non smettere mai di giocare**, perché è l'unico modo innato, biologico, che gli animali hanno per imparare.
+>**Fai arte, costruisci cose, programma software, suona, fotografa, racconta storie, esprimiti**. Fallo anche se non sono cose che ti interessa portare avanti professionalmente. Fallo perché, oltre ad allenare la creatività (utile per risolvere qualsiasi problema avrai nella vita) e sviluppare un senso estetico (senza non farai mai niente di *bello*), ti servirà ad apprendere competenze che mai avresti pensato ti potessero servire, anche in contesti molto pratici. **Non smettere mai di giocare**, perché è l'unico modo innato, biologico, che gli animali hanno per imparare.
 >
 >**Non giudicare.** O almeno resta aperta/o al cambiare idea. Non intendo solo verso le persone, intendo verso qualsiasi cosa: non puoi sapere se una materia ti può essere utile finché non diventi esperta/o dell'intero settore; non puoi giudicare moralmente qualcosa se non conosci tutte le condizioni al contorno. Ogni volta che ti senti sicura/o di qualcosa prenditi un attimo per dubitarne. Ricorda che **la velocità con cui ti fai un opinione su qualcosa è direttamente proporzionale alla probabilità che questa opinione sia una cazzata**.
 >
